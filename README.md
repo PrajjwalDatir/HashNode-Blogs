@@ -1,2 +1,4 @@
 # HashNode-Blogs
-Well... Let's try blogging.
+
+https://monarch02.hashnode.dev/
+sign up for updates...
